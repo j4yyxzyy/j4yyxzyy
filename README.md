@@ -1,4 +1,4 @@
-### Hi there 👋
+### cape sendiri, berjuang sendiri, sembuh sendiri, bangkit sendiri, nice try bro.
 
 <!--
 **j4yyxzyy/j4yyxzyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
