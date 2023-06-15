@@ -1,6 +1,4 @@
-# gf :3
-![IMG-20230315-WA0006](https://user-images.githubusercontent.com/57305852/225618856-fbe602cc-254d-4527-8a30-24b6c41e7429.jpg)
-
+# wanita mana lagi yang harus kupercayai selain ibuku?
 <!--
 **j4yyxzyy/j4yyxzyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
